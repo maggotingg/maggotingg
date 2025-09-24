@@ -6,3 +6,4 @@ Yo, the name's Mei/Jer! (or you could call me whoever I'm cosplayin) I'm a real 
 
 I might not be as active as I was back then, but I'm tryin' to find time ta talk to new people!! ^_^ Whoever ya are, feel free ta hit me up!
 
+![Alt Text](https://github.com/maggotingg/maggotingg/blob/main/8f91fc93-c9be-4a0a-bb98-26fe7d1ac0f9.jpeg?raw=true)
